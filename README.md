@@ -14,5 +14,5 @@ Mi nombre es
 ### Información de mucha relevancia:
 
 * [Música bonita](https://www.youtube.com/watch?v=8u1vfsNpVpA) para evangelizar.
-* [Serie inutil y entretenida](https://www.netflix.com/search?q=glimo&jbv=70155618), recomendadísima.
+* [Serie inútil](https://www.netflix.com/search?q=glimo&jbv=70155618) pero recomendadísima.
 * [Algo que pueden regalarme para mi cumpleaños](https://i.pinimg.com/736x/0d/a0/b1/0da0b1f763d5ae5a2747a61f5a898ebc.jpg). No optativo.
