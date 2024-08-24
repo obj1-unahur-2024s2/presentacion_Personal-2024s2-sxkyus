@@ -1,6 +1,5 @@
 ![Logo UNAHUR](./assets/UNAHUR.png)
-
-Me llamo 
+ 
 ## Luciana Ruiz Lena
 ![Hi](https://media1.tenor.com/m/BZeFVXMMgh0AAAAC/sad-hi.gif)
 
